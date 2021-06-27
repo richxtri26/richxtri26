@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @richxtri26!
+- 👀 I’m interested in code, art, writing, mythology activism, and leadership
+- 🌱 I’m currently learning visual code again!
+- 💞️ I’m looking to collaborate on projects that will help others
+- 📫 How to reach me ... I have an email, tripath.richa26@gmail.com, and an Instagram, @richxtri26!
